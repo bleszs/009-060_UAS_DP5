@@ -13,3 +13,10 @@ Link Google Drive
 https://drive.google.com/drive/u/0/folders/1idqF_C2Pl1D1CA6udgfdjKA5qUu5EVR9
 
 Link Youtube
+https://youtu.be/SfxLSITr2Bw
+jangan lupa laike,comen,skirkeb
+
+Laptop panas jari mulai pegal
+Bingung lagi kodingan ngaco
+Bang Tian bilang, "Ini kan mudah kok"
+Kami cuma bisa senyum sambil berharap dapat A
