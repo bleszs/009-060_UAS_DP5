@@ -18,7 +18,7 @@ jangan lupa laike,comen,skirkeb
 
 Laptop panas jari mulai pegal
 
-Bingung lagi kodingan ngaco
+Bingung lagi codingan ngaco
 
 Bang Tian bilang, "Ini kan mudah kok"
 
