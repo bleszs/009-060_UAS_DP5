@@ -17,6 +17,9 @@ https://youtu.be/SfxLSITr2Bw
 jangan lupa laike,comen,skirkeb
 
 Laptop panas jari mulai pegal
+
 Bingung lagi kodingan ngaco
+
 Bang Tian bilang, "Ini kan mudah kok"
+
 Kami cuma bisa senyum sambil berharap dapat A
